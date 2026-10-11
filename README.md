@@ -1,0 +1,1 @@
+# tam-okul-11-sinif-das-kimya-2026-2027-32
